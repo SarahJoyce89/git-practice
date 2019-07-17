@@ -3,7 +3,7 @@
 ## Greek Mythology
 
 Professor: Sarah Andrus  
-Time: MWF 2pm  
+Time: MWF 2pm, Summer 2019
 Location: Dearborn
 
 ### Week 1
